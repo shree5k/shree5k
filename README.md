@@ -1,2 +1,2 @@
 runnin' wild on figma canvas (sometimes outdoors)
-![Creepy Nuts - Doppelgänger (online-video-cutter com)](https://github.com/user-attachments/assets/2d37adbe-90ba-4db7-8c12-923427407236)
+<img src="https://github.com/user-attachments/assets/2d37adbe-90ba-4db7-8c12-923427407236" width="250" />
