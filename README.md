@@ -1,1 +1,1 @@
-runnin' wild on figma canvas (sometimes outdoors)
+runnin' wild on design canvas (sometimes outdoors)
